@@ -21,6 +21,6 @@ I really dont know how to use GitHub for Pony Town, but I'm Leiahh.
 * Anyone can interact.
 
 
-**More About Me:**
+**More:**
 
-https://rentry.co/colt-gray | [Twitter link] 
+https://rentry.co/colt-gray | [[Twitter link] ](https://discordid.netlify.app/?id=1321637501839872085)
